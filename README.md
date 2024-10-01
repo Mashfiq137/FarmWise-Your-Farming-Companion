@@ -1,1 +1,0 @@
-# FarmWise-Your-Farming-Companion
